@@ -19,6 +19,9 @@ Python for data analysis
 
 Machine learning fundamentals
 
+💼 Open for Collaboration
+I'm looking forward to collaborating with organizations, companies, firms, and individual businesses. If you have a project that could benefit from data analysis, let's connect!
+
 🤝 Let's connect and explore how data can drive your business decisions!
 
 Reach me on [Linkedin](https://www.linkedin.com/in/vanessa-igbinovia-931287200?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
