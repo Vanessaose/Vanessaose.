@@ -24,5 +24,5 @@ I'm looking forward to collaborating with organizations, companies, firms, and i
 
 🤝 Let's connect and explore how data can drive your business decisions!
 
-Reach me on [Linkedin](www.linkedin.com/in/vanessa-igbinovia-931287200)
+Reach me on [Linkedin](https://www.linkedin.com/in/vanessa-igbinovia-931287200/?originalSubdomain=ng)
 
